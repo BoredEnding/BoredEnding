@@ -1,4 +1,4 @@
-- 👋 Hola, I’m @BoredEnding
+- 👋 Hola, soy @BoredEnding
 - 👀 Estoy interesado en el desarrollo de puta madre
 - 🌱 Actualmente estoy aprendiendo a escribir códigos re papu :v
 - 💞️ Busco colaborar con el niño pollo
